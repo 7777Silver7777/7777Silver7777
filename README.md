@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @7777Silver7777
+- 👀 I’m interested in cybersecurity architecture, cryptocurrencies and digital assets as well as artificial intelligence applications. 
+- ✨ I’m looking to collaborate on business startup ideas and concepts. ✨
